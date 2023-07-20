@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @zillysoulsewn
 - 👀 I’m interested in ... learning.
 - 🌱 I’m currently learning ... interestings things.
-- 💞️ I’m looking to collaborate on ... Humanity.
+- 💞️ I’m looking to collaborate on ... whatever youre doing.
 - 📫 How to reach me ...
 
 <!---
